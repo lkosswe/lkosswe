@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lkosswe
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...sf
-- 💞️ I’m looking to collaborate on ..gg4554dfg46123
+- 💞️ I’m looking to collaborate on ..gg4554dfg46123asd
 - 📫 How to reach me ...52645
 - 😄 Pronouns: ...fdgdgf45
 - ⚡ Fun fact: ...
