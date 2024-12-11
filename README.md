@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ..gg4554dfg46123asd
 - 📫 How to reach me ...52645wrfsd
 - 😄 Pronouns: ...fdgdgf45
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...af
 wer
 <!---53
 lkosswe/lkosswe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
