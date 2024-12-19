@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lkosswe
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...e
 - 🌱 I’m currently learning ...sfsdfsdaa
 - 💞️ I’m looking to collaborate on ..gg4554dfg46123asd
 - 📫 How to reach me ...52645wrfsd
