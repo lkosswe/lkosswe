@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lkosswe
-- 👀 I’m interested in ...edfndf
+- 👀 I’m interested in ...edfndfgtrbgf
 - 🌱 I’m currently learning ...sfsdfsdaasdfqewqwmjhsfd
 - 💞️ I’m looking to collaborate on ..gg4554dfg46123asd65rwrh
 - 📫 How to reach me ...52645wrfsd3543888afaa
