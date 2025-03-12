@@ -7,7 +7,7 @@ j- 👋 Hi, I’m @lkosswenhggg
 - ⚡ Fun fact: ...af868thhfew
 werxcvvcxvvc
 <!---53gferdqxsjugh
-lkosswe/lkosswe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.rgr
+lkosswe/lkosswe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.rgrwed
 You can click the Preview link to take a look at your changes.62632gdf
 --->cb96cxvxb
 da
