@@ -4,7 +4,7 @@ j- 👋 Hi, I’m @lkosswenhggg
 - 💞️ I’m looking to collaborate on ..gg4554dfg46123asd65rwrhbgf96bnnqwewqewegresdad
 - 📫 How to reach me ...52645wrfsd3543888afaayjmhg
 - 😄 Pronouns: ...fdgdgf45frr12395512fsegfb666ecccxxvcsdssd.llkk.gbferdsfsfsfsncbnv
-- ⚡ Fun fact: ...af868thhfew
+- ⚡ Fun fact: ...af868thhfewgnnhg
 werxcvvcxvvc
 <!---53gferdqxsjugh
 lkosswe/lkosswe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.rgrwedgsdgd
