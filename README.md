@@ -2,7 +2,7 @@ j- 👋 Hi, I’m @lkosswenhggg
 - 👀 I’m interested in ...edfndfgtrbgfc vvvfsddgffdr
 - 🌱 I’m currently learning ...sfsdfsdaasdfqewqwmjhsfd2323bhnhgrefdeger;ouizvxvxvccx
 - 💞️ I’m looking to collaborate on ..gg4554dfg46123asd65rwrhbgf96bnnqwewqewegresdad
-- 📫 How to reach me ...52645wrfsd3543888afaayjmhgdweew
+- 📫 How to reach me ...52645wrfsd3543888afaayjmhgdwee
 - ⚡ Fun fact: ...af868thhfewgnnhg
 werxcvvcxvvcxzcxzc
 <!---53gferdqxsjughrgfd
