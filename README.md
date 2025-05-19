@@ -1,11 +1,11 @@
 j- 👋 Hi, I’m @lkosswenhggg
 - 👀 I’m interested in ...edfndfgtrbgfc vvvfsddgffdrjhmmjjdsfvbvcgfffsdfsfddefwddss
 - 🌱 I’m currently learning ...sfsdfsdaasdfqewqwmjhsfd2323bhnhgrefdeger;ouizvxvxvccxhmnbhvbcfrefererrbebrhbvvbbvhvvvdfvfsdsdfdsfdfvdf
-- 💞️ I’m looking to collaborate on ..gg4554dfg46123asd65rwrhbgf96bnnqwewqewegresdadfbdfgrdfghggggfhgvcbrjjry
+- 💞️ I’m looking to collaborate on ..gg4554dfg46123asd65rwrhbgf96bnnqwewqewegresdadfbdfgrdfghggggfhgvcbrjjrybcv
 - 📫 How to reach me ...52645wrfsd3543888afaayjmhgdwebgfregergrcnvvbcxxvcvcxfxvccx
 werxcvvcxvvcxzcxzcfddf
 <!---53gferdqxsjughrgfdzxczxz
 lkosswe/lkosswe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.rgrwedgsdgd
-You can click the Preview link to take a look at your changes.62632gdf
+You can click the Preview link to take a look at your changes.62632gdfcvcvd
 --->cb96cxvxb623
 da
