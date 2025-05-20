@@ -1,6 +1,6 @@
 j- 👋 Hi, I’m @lkosswenhggg
 - 👀 I’m interested in ...edfndfgtrbgfc vvvfsddgffdrjhmmjjdsfvbvcgfffsdfsfddefwddss
-- 🌱 I’m currently learning ...sfsdfsdaasdfqewqwmjhsfd2323bhnhgrefdeger;ouizvxvxvccxhmnbhvbcfrefererrbebrhbvvbbvhvvvdfvfsdsdfdsfdfvdf
+- 🌱 I’m currently learning ...sfsdfsdaasdfqewqwmjhsfd2323bhnhgrefdeger;ouizvxvxvccxhmnbhvbcfrefererrbebrhbvvbbvhvvvdfvfsdsdfdsfdfvdfcbvccv
 - 💞️ I’m looking to collaborate on ..gg4554dfg46123asd65rwrhbgf96bnnqwewqewegresdadfbdfgrdfghggggfhgvcbrjjrybcv
 - 📫 How to reach me ...52645wrfsd3543888afaayjmhgdwebgfregergrcnvvbcxxvcvcxfxvccx
 werxcvvcxvvcxzcxzcfddf
